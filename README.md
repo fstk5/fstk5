@@ -1,17 +1,14 @@
-### Hi there 👋
+wsg gang FTC 23696 for the win
 
-**fstk5/fstk5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+PYTHON FOR THE WIN
 
-Here are some ideas to get you started:
+i may or may not be [banned from aws](https://drive.google.com/file/d/1kGRSBygduXc0cSHLt4I1vOO0ZxfWR5zj/view?usp=sharing)
 
-- 🔭 I’m currently working on robotics
-- 🌱 I’m currently learning school (and java for [robotics](https://instagram.com/ftc_encryptedgoofygeese))
-- 👯 I’m looking to collaborate on stupid lil python projects
-- 🤔 I’m looking for help with not hating school
-- 💬 Ask me about python
-- 📫 How to reach me: [email address](mailto:fsk.obscurity982@slmail.me)
-- 😄 Pronouns: he/him (whatever is fine idc)
-- ⚡ Fun fact: im banned from aws
+i may or may not be a sage and gekko main
+
+why did they nerf thrash and the globules
+
+at least my boy dizzy got a bit of a buff
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=fstk5&theme=onedark)](https://github.com/ryo-ma/github-profile-trophy)
 
