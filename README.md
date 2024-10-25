@@ -8,7 +8,10 @@ i may or may not be a sage and gekko main
 
 why did they nerf thrash and the globules
 
-at least my boy dizzy got a bit of a buff
+~~at least my boy dizzy got a bit of a buff~~
+
+NEVERMIND THEY NERFED HIM WHY RIOT
+JUST GIVE US THE REPLAY SYSTEM ALREADY
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=fstk5&theme=onedark)](https://github.com/ryo-ma/github-profile-trophy)
 
