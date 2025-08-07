@@ -6,7 +6,7 @@ PYTHON FOR THE WIN
 
 i may or may not be [banned from aws](https://drive.google.com/file/d/1kGRSBygduXc0cSHLt4I1vOO0ZxfWR5zj/view?usp=sharing)
 
-i have become a slave to initators
+im stuck in low elo hell help me
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=fstk5&theme=onedark)](https://github.com/ryo-ma/github-profile-trophy)
 
