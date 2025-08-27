@@ -8,8 +8,8 @@ i may or may not be [banned from aws](https://drive.google.com/file/d/1kGRSBygdu
 
 im stuck in low elo hell help me
 
-[![trophy](https://github-profile-trophy.vercel.app/?username=fstk5&theme=onedark)](https://github.com/ryo-ma/github-profile-trophy)
-
 [![GitHub stats](https://github-readme-stats.vercel.app/api?username=fstk5)](https://github.com/anuraghazra/github-readme-stats)
 
-[![pyhon](https://media.tenor.com/l9ULrwYHGUsAAAAM/python-python-my-belothed.gif)
+[![pyhon](https://media.tenor.com/l9ULrwYHGUsAAAAM/python-python-my-belothed.gif)](https://google.com/search?q=hihi)
+
+[![nowplaying](https://widget.nowplaying.site/Yy8UGdISTLGAyn7d)](https://nowplaying.site/)
