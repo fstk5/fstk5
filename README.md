@@ -12,4 +12,4 @@ im stuck in low elo hell help me
 
 [![pyhon](https://media.tenor.com/l9ULrwYHGUsAAAAM/python-python-my-belothed.gif)](https://google.com/search?q=hihi)
 
-[![nowplaying](https://widget.nowplaying.site/Yy8UGdISTLGAyn7d)](https://nowplaying.site/)
+[![nowplaying](https://beta.nowplaying.site/Yy8UGdISTLGAyn7d)](https://nowplaying.site/)
