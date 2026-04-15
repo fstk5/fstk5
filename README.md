@@ -1,15 +1,7 @@
-wsg gang FTC 23696 for the win
+wsg gang FRC 4738 for the win
 
 if you're trying to reach me for whatever reason msg me on discord, i'll respond the fastest there: the_fk5
 
-PYTHON FOR THE WIN
-
-i may or may not be [banned from aws](https://drive.google.com/file/d/1kGRSBygduXc0cSHLt4I1vOO0ZxfWR5zj/view?usp=sharing)
-
 im stuck in low elo hell help me
 
-[![GitHub stats](https://github-readme-stats.vercel.app/api?username=fstk5)](https://github.com/anuraghazra/github-readme-stats)
-
-[![pyhon](https://media.tenor.com/l9ULrwYHGUsAAAAM/python-python-my-belothed.gif)](https://google.com/search?q=hihi)
-
-[![nowplaying](https://beta.nowplaying.site/Yy8UGdISTLGAyn7d)](https://nowplaying.site/)
+i may or may not be [banned from aws](https://drive.google.com/file/d/1kGRSBygduXc0cSHLt4I1vOO0ZxfWR5zj/view?usp=sharing)
